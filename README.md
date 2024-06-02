@@ -1,1 +1,1 @@
-# Git_Exercise1
+Hello everyone, I am Lynbert Joy Bile, graduate of Bachelor's degree in Information and Communications Technology in Rizal Technological University with one (1) year of professional experience as an IT Business Analyst and 2 years experience as SAP SD Functional Support.
